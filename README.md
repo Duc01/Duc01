@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Duc01
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning blender
+- 💞️ I’m looking to collaborate on nothing
